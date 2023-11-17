@@ -1,1 +1,1 @@
-https://SvitlanaUcraniana.github.io/rsschool-cv/
+https://SvitlanaUcraniana.github.io/rsschool-cv1/
